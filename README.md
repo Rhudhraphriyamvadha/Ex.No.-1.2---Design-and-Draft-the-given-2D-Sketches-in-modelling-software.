@@ -36,7 +36,7 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
- ![Screenshot 2024-10-21 174805 edm 2](https://github.com/user-attachments/assets/9285e26f-0ede-4a19-a153-8f8501cec73b)
+![pro 1 2 moo](https://github.com/user-attachments/assets/394f55c9-3bfb-4ed9-9124-03563dace962)
 
  
  ## RESULT
