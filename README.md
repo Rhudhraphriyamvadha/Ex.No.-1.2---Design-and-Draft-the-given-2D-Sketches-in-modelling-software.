@@ -37,7 +37,7 @@
 
  ## OUTPUT
 
-![image](https://github.com/user-attachments/assets/37d07ace-476d-41d1-addd-a5bc11d9701b)
+![pro 1 2 new](https://github.com/user-attachments/assets/c8946ab1-a35d-4750-913c-0c4cff7e85c4)
 
  
  ## RESULT
